@@ -18,10 +18,14 @@ Welcome
 
 --- 
 ## 🔥Activities
-- BITAmin (AI Club) — 16th Member | (Jul 2025 – present)
+- Ewha Computer Club - FE Member | (Mar 2025 - Aug 2025)
+- BITAmin (AI Club) — 16th Member | (Jul 2025 – Aug 2026)
+  
 ---
 ## 📫 Contact
 - Email: 2464012@ewha.ac.kr
+- Notion : https://witty-minnow-05d.notion.site/ec0d89e322a48274ba6e01365fa2468d
+- Linkedin : https://www.linkedin.com/in/minju-%E2%80%8Ekim-a9654b368/
 ---
 
 
